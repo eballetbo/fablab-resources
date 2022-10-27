@@ -1,0 +1,1 @@
+This thing was created by Thingiverse user Shira, and is licensed under cc-nc-nd.
